@@ -1,4 +1,4 @@
-# 
+# Nouveau reversal trading bot plugins pour Mac OS | Open Source reversal trading bot plugins pour PC Windows. Avec flux en temps réel et agriculture de rendement — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
